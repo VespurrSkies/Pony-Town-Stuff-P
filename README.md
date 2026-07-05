@@ -4,6 +4,22 @@
 　　　　　　*　　　　　　　　　　　.
 .　　　　　　　　　　　　　. 　　✦⠀　   　　　,　　　　　　　　　*
 　　　　　⠀　　　　⠀　　,
+╔═══*.·:·.☽✧ ✦ ✧☾.·:·.*═══╗
+
+₊‧.°.⋆ Pony Town Info •˚₊‧⋆.
+
+⊹₊ ㆍ✿ㆍVespurrㆍ✿ㆍ₊⊹. 
+
+⊹ ˚ . 20 ｡ﾟ; System . •˚₊‧⋆.  
+
+⋆ Usually AFK and with my beloved ⋆  
+⊹₊ Around the bakery area •˚₊‧⋆.  
+
+☉ • ~ Prefered meathod of communication is w2t
+    ⊹₊ I will respond if youre still online
+    when i return to keyboard ;
+    
+╚═══*.·:·.☽✧ ✦ ✧☾.·:·.*═══╝
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　　　 　　⠀　　　⠀.　
  　　˚　　　⠀　⠀  　　,　　　　　　.
 　　　　　　　　　　　　　.
@@ -37,4 +53,3 @@
 　　　　　　　　　　　.  
 　　　　　　　  
 　　　˚　　　　　　　'. 
-<img width="1199" height="295" alt="image" src="https://github.com/user-attachments/assets/87063d52-462f-4a05-892d-051196094d65" />  

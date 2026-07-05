@@ -38,8 +38,8 @@
  ☆  
  ┊... [Atabook](https://vespurrskies.atabook.org/) 。°˖  
  ┊... [Strawpage](https://vespurrskies.straw.page/) 。°˖  
- ☆
- ╰┈┈┈➤ ☆⋆｡𖦹°‧★
+ ☆  
+ ╰┈┈┈➤ ☆⋆｡𖦹°‧★  
 　˚　　　　　　　　　　　　　　*
 .⠀ 　　　　　　　　　　.　　　　　　　　.
 　　　　　✦⠀　   　　　,　　    　　　　　　　　.

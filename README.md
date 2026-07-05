@@ -54,3 +54,4 @@
 　　　　　　　　　　　.  
 　　　　　　　  
 　　　˚　　　　　　　'. 
+   <img width="1199" height="295" alt="image" src="https://github.com/user-attachments/assets/ee856556-03a3-4e74-8f73-705b765c189c" />

@@ -34,6 +34,12 @@
 　.⠀　　⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀‍⠀,
 　　　*　　⠀.
 　　　　　.　　　　　　　　　　⠀✦
+𓂃𓏲࣪  ʚ Sign Here!!<3 。°˖  
+ ☆  
+ ┊... [Atabook](https://vespurrskies.atabook.org/) 。°˖  
+ ┊... [Strawpage](https://vespurrskies.straw.page/) 。°˖  
+ ☆
+ ╰┈┈┈➤ ☆⋆｡𖦹°‧★
 　˚　　　　　　　　　　　　　　*
 .⠀ 　　　　　　　　　　.　　　　　　　　.
 　　　　　✦⠀　   　　　,　　    　　　　　　　　.

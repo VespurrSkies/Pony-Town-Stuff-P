@@ -20,8 +20,8 @@
 ⋆ Usually AFK and with my beloved ⋆  
 ⊹₊ Around the bakery area •˚₊‧⋆.  
   
-☉ • ~ Prefered meathod of communication is w2i
-    ⊹₊ I will respond if youre still online
+☉ • ~ Prefered meathod of communication is w2i  
+    ⊹₊ I will respond if youre still online  
     when i return to keyboard ;
     
 ╚═══*.·:·.☽✧ ✦ ✧☾.·:·.*═══╝

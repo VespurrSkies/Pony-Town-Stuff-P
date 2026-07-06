@@ -10,15 +10,17 @@
 ╔═══*.·:·.☽✧ ✦ ✧☾.·:·.*═══╗
 
 ₊‧.°.⋆ Pony Town Info •˚₊‧⋆.
-
+  
 ⊹₊ ㆍ✿ㆍVespurrㆍ✿ㆍ₊⊹. 
-
+  
 ⊹ ˚ . 20 ｡ﾟ; System . •˚₊‧⋆.  
-
+  
+⊹ ; C+H+Int Freely and encouraged!  . ' ;     ✦⠀　  
+  
 ⋆ Usually AFK and with my beloved ⋆  
 ⊹₊ Around the bakery area •˚₊‧⋆.  
-
-☉ • ~ Prefered meathod of communication is w2t
+  
+☉ • ~ Prefered meathod of communication is w2i
     ⊹₊ I will respond if youre still online
     when i return to keyboard ;
     

@@ -22,7 +22,7 @@
   
 ☉ • ~ Prefered meathod of communication is w2i  
     ⊹₊ I will respond if youre still online  
-    when i return to keyboard ;
+              when i return to keyboard ;
     
 ╚═══*.·:·.☽✧ ✦ ✧☾.·:·.*═══╝
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　　　 　　⠀　　　⠀.　

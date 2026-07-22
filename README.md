@@ -16,7 +16,8 @@
 ⊹ ˚ . 20 ｡ﾟ; System . •˚₊‧⋆.  
   
 ⊹ ; C+H+Int Freely and encouraged!  . ' ;     ✦⠀　  
-  
+  Also have a big cud comf :3. 
+
 ⋆ Usually AFK and with my beloved ⋆  
 ⊹₊ Around the bakery area •˚₊‧⋆.  
   
